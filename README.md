@@ -1,4 +1,4 @@
- Hi, I’m @fazalakram42
+@FazalAkram42
 - 👀 I’m interested in ...
 
 
